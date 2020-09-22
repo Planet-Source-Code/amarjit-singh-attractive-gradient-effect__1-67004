@@ -1,0 +1,1 @@
+Very nice gradient effects i am sure that you have never seen such amazing gradient effect only using VB no Third party software and depicit the power of VB in Graaphics.
